@@ -1,5 +1,8 @@
 # soy-inocente
 
+### 26. 1. 6 
+- https://youtube.com/shorts/w_yPrY7gh2w
+
 ### 26. 1. 5 
 - ![1](/260105/00000001.png)
 - ![2](/260105/00000002.png)
