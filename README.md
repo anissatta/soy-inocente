@@ -1,5 +1,15 @@
 # soy-inocente
 
+
+### 26. 1. 9 
+- https://github.com/anissatta/soy-inocente/blob/main/jan09/New%20Recording.m4a
+- ![1](/260109/1.jpg)
+- ![2](/260109/2.jpg)
+- ![3](/260109/3.jpg)
+- ![4](/260109/4.jpg)
+- ![5](/260109/5.jpg)
+- ![6](/260109/6.jpg)
+
 ### 26. 1. 7 
 - https://youtube.com/shorts/HTwxVYfklxc
 
