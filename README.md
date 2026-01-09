@@ -2,6 +2,12 @@
 
 
 ### 26. 1. 9 
+- ![7](/260109/7.jpg)
+- ![8](/260109/8.jpg)
+- ![9](/260109/9.jpg)
+- ![a](/260109/a.jpg)
+- ![b](/260109/b.jpg)
+
 - https://github.com/anissatta/soy-inocente/blob/main/jan09/New%20Recording.m4a
 - ![1](/260109/1.jpg)
 - ![2](/260109/2.jpg)
