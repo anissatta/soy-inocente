@@ -2,6 +2,11 @@
 
 
 ### 26. 1. 9 
+- https://youtu.be/w7M2l-SYnF0
+- https://youtube.com/shorts/YafP7keHD4M
+- https://youtube.com/shorts/8IHI7x6-pkU
+- https://youtube.com/shorts/BVXfXVJI7F0
+
 - 7 PM: 今終わりました。会計が閉まってるので支払は次回らしいです 
 - 5 PM: まだ2Fの待合にいます。 
 - 4 PM: (16:30) 先に看護師の方より前の方がまだ手術中と伺っていましたので、まだかかるかと思います。 
